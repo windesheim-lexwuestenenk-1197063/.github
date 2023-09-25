@@ -1,1 +1,1 @@
-Al mijn huiswerk van HBO-iCT
+Al mijn huiswerk van HBO-ICT
